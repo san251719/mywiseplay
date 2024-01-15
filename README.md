@@ -1,3 +1,22 @@
-<h1 style="text-align:center">💥<font color="#ff0000">◔‌◔</font<font color="#ff0000">🇬🇭ƒ</font<font color="#ff2000">ɾ</font><font color="#ff4000">ε</font><font color="#ff5f00">ε</font><font color="#ff7f00">∂</font><font color="#ff9900">α</font><font color="#ffb200">ƭ</font><font color="#ffcc00">α</font> <font color="#ffe500">ɠ</font><font color="#bfff00">ɦ</font><font color="#80ff00">α</font><font color="#40ff00">ɳ</font><font color="#00ff00">α🇬🇭</font><font color="#00ff40">  in collaboration with </font><font color="#00ff80">  </font><font color="#00ffbf">  </font><font color="#00ffff">ΑℓℓƬเⱮΕƬΕ𝕮Ɦ GH</font>☄️<h1 style="text-align:center";><font color="#9966FF">『. ⍣⃝คllTɪᴍᴇ🇬🇭  』<h1 style="text-align:center";><font color="red"><font color="red"><font color="red"><font color="red">🛰️<h4 style="text-align:center"><font color="#00a7ff">🗺️ Enjoy Some free Internet Connection And save some coins 🥴😅<h4 style="text-align:center";><font color="#FF00FF">|ˢᵘᵖᵖᵒʳᵗˢ ˢᵗʳᵉᵃᵐⁱⁿᵍ 📱</font><font color="blue">|ᶠᵃᶜᵉᵇᵒᵒᵏ📳</font><font color="#800000">|ᶰᵉᵗᶠˡᶤˣ🖥 </font><br><font color="red">|ʸᵒᵘᵗᵘᵇᵉ📺</font><font color="#FFA500">| contact to purchase and own a vps for months with very affordable price, contact us for your Vps maintenance and installation 🗂<p style="text-align: center; color: #be00eb">[ᴡ‌ʜᴀᴛsᴀᴘᴘ ᴄᴏɴᴛᴀᴄᴛ ]<br>wa.me/+2330200968864</br><br><br> ‌T‌e‌l‌e‌g‌r‌a‌m‌ ᴄʜᴀɴɴᴇʟ<br>t.me/alltimetechgh : t.me/freedataghana<h4 style="text-align:center";><font color="#028cf1">✨[call for more explanation 0554083416] 🇬🇭</font></br></h2>
-<p style="text-align: center;"><span style="color: #0000ff;"><strong>Proudly Ghanian 🇬🇭</strong></span><br /><em><span style="color: #ff0000;"><strong>SCRIPT - t.me/all_time01 
-Special thanks to AllTime (Emma), the bossu himself 😅 >>Bismark Mensah(Larry ) and Caleb Sark</strong></span></em></p>''
+<big> <b><big><p style="text-align:center"<div> <span font> <font color='#FF1800'>������������ M</font><font color='#FF4B00'>O</font><font color='#FF7900'>U</font><font color='#FEA600'>T</font><font color='#FFD800'>R</font><font color='#EAFF00'>A</font><font color='#B3FE00'>I</font><font color='#7EFF00'>N</font><font color='#08FF00'>Z</font> 🌻 <font color='#0056FE'>T</font><font color='#0024FF'>E</font><font color='#1600FF'>C</font><font color='#1600FF'>H</font><b>
+<small><small><small><u><font color='#ffd700'>����� ไม่ต้องเก่งกาจ แค่ทำด้วยปลายนิ้ว �����</u></font><b><font color='#EAFF00'>
+
+</font><big><b><big><small><u> <font color='#EAFF00'> 
+MOUNIR-TECH</u> :</color></b><b><font color='#00FFFF'>
+https://t.me/moutrainz0 <big> </font> <b><font color='#ffffff'><b>⚪═══════════════════⚪
+ </a></font>
+<b><big><font color='#0098FF'>C</font><font color='#0084FF'>r</font><font color='#0071FE'>e</font><font color='#005DFF'>a</font><font color='#0048FE'>t</font><font color='#0032FF'>e</font><font color='#001BFF'> </font><font color='#0001FF'>B</font><font color='#1900FE'>y</font><font color='#3200FF'> </font><font color='#4900FF'>:</font><font color='#6100FF'> </font><font color='#7700FF'>M</font><font color='#8F00FF'>O</font><font color='#A600FF'>U</font><font color='#C000FE'>T</font><font color='#DB00FF'><font color='#B839FF'>R</font><font color='#A266FF'>A</font><font color='#8F94FF'>I</font><font color='#7EABFF'>N</font><font color='#71BDFF'>Z</font></font></big>
+
+
+
+<font color=blue>
+██╗░░░██╗██████╗░███╗░░██╗
+██║░░░██║██╔══██╗████╗░██║
+╚██╗░██╔╝██████╔╝██╔██╗██║
+░╚████╔╝░██╔═══╝░██║╚████║
+░░╚██╔╝░░██║░░░░░██║░╚███║
+░░░╚═╝░░░╚═╝░░░░░╚═╝░░╚══╝
+
+█▀█ █▀▀ ▄▀█ █░█ █▀▀ █▀█
+█▀▄ ██▄ █▀█ ▀▄▀ ██▄ █▀▄
+</font>
